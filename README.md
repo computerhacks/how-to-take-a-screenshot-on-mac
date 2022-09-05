@@ -1,6 +1,6 @@
 # How to Take a Screenshot on Mac
 
-[![How to Take a Screenshot on Mac](red2.png)](https://computersolve.com/how-to-screenshot-on-mac/)
+[![How to Take a Screenshot on Mac](red2.png)](https://icncomputer.com/how-to-screenshot-on-mac/)
 
 
 
